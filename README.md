@@ -1,3 +1,3 @@
 دەست لەو دوو لینکە بدە
                 👇
-https://drive.google.com/file/d/1KwuDxCdQbgKahj_Lu7jCqVKrxxYeRJoI/view?usp=drivesdk
+https://l.facebook.com/l.php?u=https%3A%2F%2Fcdn.fbsbx.com%2Fv%2Ft59.2708-21%2F490092279_1152156536591987_5288791087075217260_n.pdf%2F%25D9%2588%25DB%258E%25D9%2586%25DB%2595.pdf%3F_nc_cat%3D105%26ccb%3D1-7%26_nc_sid%3D2b0e22%26_nc_eui2%3DAeHFYPlMvWdtDKTfUa9xYGaTUKMuwdjqvxVQoy7B2Oq_FcU7yHMUDiG-utp0UOGCHV0i05L6m1G12xhdyNzehUSz%26_nc_ohc%3DsdKDTjwBe40Q7kNvwEpHc7n%26_nc_oc%3DAdlApPs_m7RaFMi1gf93ZedEWwtAwdB_AA_ILH9eHXqYzM3KIikQweRoo44B143_bTk%26_nc_zt%3D7%26_nc_ht%3Dcdn.fbsbx.com%26_nc_gid%3DgoCe9aFyF9QBxWzHSjV4OA%26oh%3D03_Q7cD2AHvO5c_ihpzcU7g-fuZeG26CAxJM1YSxzA2mr_dddPgDw%26oe%3D67F7331C%26dl%3D1&h=AT2fjq6P7MqIuIe9vLmLAZwQWePO5ZfFOGDGrJ4l87xIbg-ceel1vmhHZuiOKqJmOhLg_13pcVWXlkL1TXZhOav1gygfLOWnE9P9m4ALC3mDTlQwU_xy2EEEji66F6Cy
